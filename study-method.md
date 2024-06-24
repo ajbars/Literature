@@ -18,4 +18,4 @@ What does this teach me about the different aspects of the world and of myself?
 
 What is the allegoric meaning of the scene?
 
-What the author tried to teach the readers? What is says bout his views and beliefs?
+What the author tried to teach the readers? What is says about his views and beliefs?
