@@ -10,7 +10,7 @@ What are the reactions of other actors?
 
 What are the consequences of the actions?
 
-How do I assess the actions and reactions in the light of the Scriptures?
+How do I assess the actions and reactions in the light of the Scriptures? Cite the approprite Scriptures.
 
 What do the these say of the character of the actors?
 
