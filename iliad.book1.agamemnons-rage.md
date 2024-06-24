@@ -13,6 +13,6 @@ He wants to punish the prophet too for his words, derogatorily speaking of him a
 
 He also says that Achylles is guilty of disrespect. It’s a bad thing, disrespect,ut what Agamemnon did was much worse. The problem with strong people and natural leaders is often the lack of humility
 
-What Homwr wants to teach us?
+What Homer wants to teach us?
 
 Perhaps, humility and also, that leaders are people and can be immature, though great. We have to be careful with waking their anger, because their bad decisions can be very destructive
