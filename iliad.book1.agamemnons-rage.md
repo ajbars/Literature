@@ -1,6 +1,6 @@
 # The rage of Agamemnon against Achylles
 
-Achylles was right, there was an actual problem that Agammnon was the reason of, but the latter couldn't admit his fault and accept the consequences. He was afraid to acknowledge it to lose the psychological leadership to Achylles whom he envied and hated
+Achylles was right, there was an actual problem that Agamemnon was the reason of, but the latter couldn't admit his fault and accept the consequences. He was afraid to acknowledge it to lose the psychological leadership to Achylles whom he envied and hated
 
 This lead to severe consequences again. Many achaeans were killed as a result of his pride that caused animosity with Achylles and his revenge, which also was very wrong of course.
 
