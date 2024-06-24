@@ -1,6 +1,6 @@
 % Iliad 
 
-Iliad is interesting because it was written in VIII Century BC about events that happened in XII BC
+Iliad is interesting because it was written in VIII Century BC about events that happened in XII BC, Bronze Age.
 
 It makes it the oldest European piece of literature.
 
