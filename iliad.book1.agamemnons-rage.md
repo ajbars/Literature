@@ -1,4 +1,4 @@
-The rage of Agamemnon against Achylles
+# The rage of Agamemnon against Achylles
 
 Achylles was right, there was an actual problem that Agammnon was the reason of, but the latter couldn't admit his fault and accept the consequences. He was afraid to acknowledge it to lose the psychological leadership to Achylles whom he envied and hated
 
